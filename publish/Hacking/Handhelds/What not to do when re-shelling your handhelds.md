@@ -1,3 +1,7 @@
+---
+title: What not to do when re-shelling your handhelds
+cssclasses:
+---
 # 3DS
 > Learned this the hard way.  
 
