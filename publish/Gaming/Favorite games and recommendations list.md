@@ -1,0 +1,3 @@
+![[NewCanvas1.png]]
+From this banner you can probably guess. These are the games that I "grew" up on and are my comfort games whenever I feel bad.  
+There are too many youtube videos about all of these three, if you ever feel like you don't have anything to play, try one of these three out. I don't have too much playtime on any single one of these, but seeing the ending of each and every one of these always brings a tear to my eye, maybe happy, maybe sad tear. 
